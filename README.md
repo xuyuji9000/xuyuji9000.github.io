@@ -1,1 +1,0 @@
-Karl Xu's blog.
